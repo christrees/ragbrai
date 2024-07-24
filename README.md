@@ -5,6 +5,6 @@ ragbrai info link for ragbrai.christrees.com
 - Mt. Pleasant - Bev Ray
 
 ---
-
-![]()
+![](DayMaps6_R-scaled.jpg)
+![](DayMaps7_R-scaled.jpg)
 
