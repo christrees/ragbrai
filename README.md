@@ -11,6 +11,8 @@ ragbrai info link for ragbrai.christrees.com
 - Mt. Pleasant - Bev Ray
   - 608 E Clay St, Mt Pleasant, IA 52641
   - [Google Map Link](https://maps.app.goo.gl/gavfHtVmBU73XNfYA)
+
+---
 ---
 ![](DayMaps6_R-scaled.jpg)
 ![](DayMaps7_R-scaled.jpg)
